@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Chukzy1995
+9035bd656175cd23ff9e97a52a22e5b4e35c655a- 👋 Hi, I’m @Chukzy1995
 - 👀 I’m interested in pi growth 
 - 🌱 I’m currently learning mining checklist 
 - 💞️ I’m looking to collaborate on pi network 
