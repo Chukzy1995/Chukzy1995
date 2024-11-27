@@ -2,7 +2,7 @@
 - 👀 I’m interested in pi growth 
 - 🌱 I’m currently learning mining checklist 
 - 💞️ I’m looking to collaborate on pi network 
-- 📫 How to reach me @chuksuti1995 pi network 
+- 📫 How to reach me @chukzy
 - 😄 Pronouns: I want to have pi in my wallet 
 - ⚡ Fun fact: mining pi 
 fun to be with pi network 
